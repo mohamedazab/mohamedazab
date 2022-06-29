@@ -9,7 +9,7 @@ Currently, I am doing my MSc. degree at TUM. I am also working as a software arc
 
 My hobbies include football, running and I am also a big car enthusiast.
 
-Get in touch on [linkedin](linkedin/in/mohamedelzohairy) 
+Get in touch on [linkedin](https://www.linkedin.com/in/mohamedelzohairy) 
 
 
 <!--
